@@ -1,1 +1,1 @@
-# site-sobre-tecnologia
+# technoloogia
